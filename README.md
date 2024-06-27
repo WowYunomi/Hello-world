@@ -1,2 +1,2 @@
 # hello-world
-learning
+learning code to work on my skills on this fucking amazing world.
